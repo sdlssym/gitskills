@@ -1,2 +1,2 @@
-Creating a new branch is quick and simplei.
+Creating a new branch is quick and simple.
 The beautiful girl.
